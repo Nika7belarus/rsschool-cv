@@ -1,1 +1,1 @@
-https://Nika7belarus.github.io/rsschool-cv/cv
+https://Nika7belarus.github.io/rsschool-cv/
